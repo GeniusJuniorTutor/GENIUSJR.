@@ -1,2 +1,0 @@
-# GENIUSJR.
-REAL
